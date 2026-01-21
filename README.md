@@ -1,3 +1,9 @@
+**Resturant dashboard video overview**
+https://drive.google.com/file/d/1lx9pQqjEFsAVvdSFp5J8VKUmyckhrZwq/view?usp=sharing
+
+
+
+
 **Shital Restaurant Dashboard**
 **Project Overview**
 
